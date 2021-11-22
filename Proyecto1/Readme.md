@@ -1,2 +1,0 @@
-DeivL
-practicando y aprendiendo
